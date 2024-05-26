@@ -1,1 +1,1 @@
-# friendly-adventure
+# friendly-adventurehttps://github.dev/Sexybuns42/friendly-adventure/blob/main/LICENSE
